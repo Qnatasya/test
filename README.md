@@ -1,1 +1,3 @@
-# saya qistina natasya berumur 20
+# Jihan ayuni suka tido
+# Qistina natasya seorang yg comel
+# piah busuk
